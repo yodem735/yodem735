@@ -2,8 +2,8 @@
 - 👀 I’m interested in Web3, decentralized finance (DeFi), Cryptocurrency
 - 🌱 I’m currently learning about technology and malware analysis, expanding my knowledge in how these areas can impact security and the digital landscape.
 - 💞️ I’m looking to collaborate on crypto projects
-- 📫 How to reach me email: yodebusiness@outlook.com
-- 😄 Pronouns: he
+- 📫 How to reach me via email: yodebusiness@outlook.com
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: My dream vacation is to visit the Maldives and experience staying in an overwater bungalow.
 
 
